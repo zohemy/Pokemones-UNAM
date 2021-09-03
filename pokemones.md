@@ -1,4 +1,8 @@
 
+[Sofia](https://github.com/sofiamanzov) 
+
+![image](https://user-images.githubusercontent.com/90066009/132059356-6257681a-392c-459e-a76a-242d5cb96ef7.png)
+
 [Ángelusz Janos](https://github.com/angelusz-developer) 
 
 ![image]( https://static.wikia.nocookie.net/espokemon/images/5/50/Darkrai.png/revision/latest?cb=20150214164357)
