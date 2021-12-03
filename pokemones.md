@@ -24,4 +24,12 @@
 
 ![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/007.png)
 
+[Zohemy](https://github.com/David-Lazaro-Fernandez) 
+
+![image]([Elizabeth](https://github.com/David-Lazaro-Fernandez) 
+
+![image](https://assets.pokemon.com/assets/cms2/img/pokedex/full/007.png)
+)
+
+
 
